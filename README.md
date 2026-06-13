@@ -100,7 +100,7 @@ Care Coordination
 
 📧 Email: annestephen20@gmail.com
 
-💼 LinkedIn: 
+💼 LinkedIn: https://www.linkedin.com/in/annastacia-mutua-34878627a?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 ---
 
 ### Motto
